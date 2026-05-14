@@ -1,4 +1,4 @@
-#  
+#  Experience my avatar like never before with my avatar Scripts advanced, the #1 Script. Includes auto-farm and auto-collect for unbeatable performance.
 
 
 
